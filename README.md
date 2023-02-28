@@ -10,4 +10,4 @@
 
 I have a [website](http://questionblockteam.6te.net/)
 
-My YouTube channel(s) [Aqua21](https://www.youtube.com/channel/UCpLPIRpXNo70E0XDQPQwxQQ) - ? [Block Team](https://www.youtube.com/channel/UCpvhZmAmofOxyZPwfupK43Q)
+My YouTube channel(s) [Aqua21](https://www.youtube.com/channel/UCpLPIRpXNo70E0XDQPQwxQQ) - [? Block Team](https://www.youtube.com/channel/UCpvhZmAmofOxyZPwfupK43Q)
