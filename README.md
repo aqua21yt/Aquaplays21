@@ -6,7 +6,6 @@
 - How to reach me: @Aqua21#4420 on Discord
 - He/Him
 ### My socials
-[Discord Server](https://discord.gg/UQ8NpMnZqg)
 
 I have a [website](http://questionblockteam.6te.net/)
 
