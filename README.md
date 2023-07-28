@@ -7,4 +7,4 @@
 - He/Him
 ### My socials
 
-My YouTube channel(s) [Aqua21](https://www.youtube.com/channel/UCpLPIRpXNo70E0XDQPQwxQQ) - [THE garbage bros wii](https://www.youtube.com/channel/UCpvhZmAmofOxyZPwfupK43Q)
+My YouTube channel(s) [aqua21](https://www.youtube.com/channel/UCpLPIRpXNo70E0XDQPQwxQQ) - [THE garbage bros wii](https://www.youtube.com/channel/UCpvhZmAmofOxyZPwfupK43Q)
