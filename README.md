@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C++ and HTML/CSS and enjoy coding in both.
 - I’m looking for more NSMBW hacks to help with!
 - 💬 Ask me for NSMBW level design tips on Discord: @Aqua21#4420
-- How to reach me: @aqua21 on Discord
+- How to reach me: @waterboy21 on Discord
 - He/Him
 ### My socials
 
