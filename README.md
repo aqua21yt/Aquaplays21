@@ -1,10 +1,3 @@
-### Hi there! I'm aqua21!
-- 🔭 I’m a [NSMBW](https://www.mariowiki.com/New_Super_Mario_Bros._Wii) modder that works on [Bruh Studios](https://discord.gg/bkHpj4mPgk).
-- 🌱 I’m currently learning C++ and HTML/CSS and enjoy coding in both.
-- I’m looking for more NSMBW hacks to help with!
-- 💬 Ask me for NSMBW level design tips on Discord: @Aqua21#4420
-- How to reach me: @waterboy21 on Discord
-- He/Him
-### My socials
+Hi I'm aqua21. I do things, mainly NSMBW modding for [Bruh Studios](bruhstudios.aqua21.rf.gd) etc.
 
 My YouTube channel(s) [aqua21](https://www.youtube.com/channel/UCpLPIRpXNo70E0XDQPQwxQQ) - [THE garbage bros wii](https://www.youtube.com/channel/UCpvhZmAmofOxyZPwfupK43Q)
