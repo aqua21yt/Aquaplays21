@@ -3,3 +3,5 @@ My YouTube channel(s) [aqua21](https://www.youtube.com/channel/UCpLPIRpXNo70E0XD
 Other Socials:
 [GameBanana](https://gamebanana.com/members/2826694) (plz give points)
 Discord - waterboy21
+
+I'm currently building a website that will be made public in a while
